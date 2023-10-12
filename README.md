@@ -1,4 +1,4 @@
-### Hi there 👋
+[### Hi there 👋
 
 <!--
 **KTanmay1/KTanmay1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -14,3 +14,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+](https://imgs.search.brave.com/i_beTphtFpcQOOekVN-ZucJAEN8oGaNdtdQXDDfhLtc/rs:fit:860:0:0/g:ce/aHR0cHM6Ly9tZWRp/YS50ZW5vci5jb20v/bE50bW9zaHVVSThB/QUFBai9iYWhyb28t/aGFja2VyLmdpZg.gif)https://imgs.search.brave.com/i_beTphtFpcQOOekVN-ZucJAEN8oGaNdtdQXDDfhLtc/rs:fit:860:0:0/g:ce/aHR0cHM6Ly9tZWRp/YS50ZW5vci5jb20v/bE50bW9zaHVVSThB/QUFBai9iYWhyb28t/aGFja2VyLmdpZg.gif
